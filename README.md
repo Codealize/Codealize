@@ -5,3 +5,4 @@
 - 🧑‍💻 I'm also learning about iOS downgrading.
 - 🍎 I have a big interest in Apple's iPhones and iPods.
 - 🤖 Everyone's opinions should be respected, no hate to Android or Google! Since I've been using Apple for 10 years or so, I still think Android is pretty cool with their customization! Big ups to Google AND Apple for doing a good job on their products!
+- 💻 & 🖥 I really like using computers and laptops, they are really fun to use and spark my creativity. I've also used a Mac before, but I've been using Windows for about 9 years. Never owned a Mac, but I've used them before!!! ;)
