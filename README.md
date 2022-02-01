@@ -4,4 +4,4 @@
 - 📋 I'll be uploading many of my various projects here, plus leave your feedback here, so I know how to improve my projects for you all! :)
 - 🧑‍💻 I'm also learning about iOS downgrading.
 - 🍎 I have a big interest in Apple's iPhones and iPods.
-- 🤖 Everyone's opinions should be respected, no hate to Android, as I've also used Android devices and still own a few.
+- 🤖 Everyone's opinions should be respected, no hate to Android or Google! Since I've been using Apple for 10 years or so, I still think Android is pretty cool with their customization! Big ups to Google AND Apple for doing a good job on their products!
