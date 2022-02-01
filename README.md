@@ -3,4 +3,5 @@
 - 💻 I also code in ROBLOX and Microsoft Visual Studio Code.
 - 📋 I'll be uploading many of my various projects here, plus leave your feedback here, so I know how to improve my projects for you all! :)
 - 🧑‍💻 I'm also learning about iOS downgrading.
-- 🤖&🍎 I have a big interest in Apple & Android!
+- 🍎 I have a big interest in Apple's iPhones and iPods.
+- 🤖 Everyone's opinions should be respected, no hate to Android, as I've also used Android devices and still own a few.
