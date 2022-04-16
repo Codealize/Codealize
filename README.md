@@ -7,4 +7,8 @@
 - 🤖 Everyone's opinions should be respected, no hate to Android or Google! Since I've been using Apple for 10 years or so, I still think Android is pretty cool with their customization! Big ups to Google AND Apple for doing a good job on their products!
 - 💻 & 🖥 I really like using computers and laptops, they are really fun to use and spark my creativity. I've also used a Mac before, but I've been using Windows for about 10 years. Never owned a Mac, but I've used them before!!! ;)
 
-(Last updated: 6:04AM EST - February 1st, 2022)
+Original desc on my profile: I code in ROBLOX, and Microsoft Visual Studio Code in my free time, I'll be uploading my projects here!
+I’m also learning more about Apple devices too.
+
+
+(Last updated: 3:38PM EST - April 16th, 2022)
